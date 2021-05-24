@@ -1,0 +1,1 @@
+first melt the choclate-then take a bowl-put milk,melted choclate ,coco powder,egg,butter,sugar and baking powder in the bowl-then mix it properly-then put bowl into any utensil for baking for 15 to 30 minutes on gas-then take it out-decorate it with cream and solid choclate-then oue choclate cake is ready
